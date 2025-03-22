@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Batch!
 - 💞️ I’m looking to collaborate on nothing.
 - 📫 How to reach me: no way, no how.
-- 😄 Pronouns: i hate those.
+- 😄 Pronouns: i hate those but i'm a male.
 - ⚡ Fun fact: i'm actually a kid using dad's account LOL!
 
 <!---
